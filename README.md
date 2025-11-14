@@ -11,7 +11,7 @@
 - 🌱 Đang học và phát triển kỹ năng: C#, Java, Networking, Security
 - ⭐ Đam mê lập trình và xây dựng dự án thực tế
 - 🎯 Mục tiêu: Trở thành lập trình viên chuyên nghiệp  
-- ⚡ Sở thích: Code, học cái mới, tối ưu hóa sản phẩm
+- ⚡ Sở thích: Code, học cái mới, tối ưu hóa sản phẩm, bóng chuyền 
 
 ---
 
