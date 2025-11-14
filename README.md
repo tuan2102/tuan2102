@@ -49,8 +49,8 @@
 ---
 
 ## 📫 Liên hệ
-- 📧 Email: **tuan2102@example.com**
-- 💬 Facebook / Zalo: (thêm link nếu muốn)
+- 📧 Email: **v.t.anhtuan11a7gmail.com**
+- 💬 Facebook / Zalo: +84964255883
 
 ---
 
